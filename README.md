@@ -1,2 +1,0 @@
-# TecnolochicasPro_Portafolio_main
-Portafolio Main
